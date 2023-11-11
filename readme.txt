@@ -1,1 +1,1 @@
-Website for Care and Cure Physiotherapy clinic
+Website for Dr. AQ Khan Phsyio Center
